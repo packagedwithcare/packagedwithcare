@@ -1,2 +1,1 @@
-i will remake this one day or ill just make a rent insteed
- 
+![](https://i.postimg.cc/RC2f44zw/bobettecarolynneblinkie.gif)
