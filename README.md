@@ -8,3 +8,4 @@
 hi! you can call me thanksiknow / rudy / carolynne / pupspuja! \
 i am a bobette fictionlink, and i am agender, going by hy / hym \
 bobette yumeshippers (a lot of you LOL) please please iwec!! \
+not disclosing age
